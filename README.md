@@ -1,2 +1,2 @@
-Very nice videos by David Mahler
+Very nice videos by David Mahler. Han er en god gut!
 Here is the first https://www.youtube.com/watch?v=uR6G2v_WsRA 
